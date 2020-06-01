@@ -1,4 +1,4 @@
-I am Tommy Hartono from Indonesia. I am a dreamer of Space Exploration.
+I am Tommy Hartono from Indonesia.
 
 ## Important Links:
 
